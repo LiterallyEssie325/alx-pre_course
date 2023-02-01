@@ -1,1 +1,1 @@
-ALX is so cool
+ALX is the best, ALX is so cool
